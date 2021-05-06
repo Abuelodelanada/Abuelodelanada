@@ -1,3 +1,1 @@
-### Nos vemos!
-
-![imagen](https://user-images.githubusercontent.com/939888/117234570-9dc10000-adfb-11eb-921b-86555a8721c1.png)
+![imagen](https://user-images.githubusercontent.com/939888/117234711-e678b900-adfb-11eb-8026-36930f964f70.png)
